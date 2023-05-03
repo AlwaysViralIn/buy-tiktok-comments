@@ -1,4 +1,4 @@
-Buy TikTok Comments | http://AlwaysViral.In
+Buy TikTok Comments |AlwaysViral.In
 
 Premium Comments <br/>
 All Real & Active <br/>
